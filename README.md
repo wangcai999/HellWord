@@ -1,1 +1,1 @@
-# hell-passwall
+# HellWord for everyone
